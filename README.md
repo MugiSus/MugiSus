@@ -1,3 +1,1 @@
-### Hi there! 👋
-
-MugiSus here.
+### 👋 Hi there! MugiSus here.
