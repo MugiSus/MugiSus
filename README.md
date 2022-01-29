@@ -1,3 +1,3 @@
-# [MugiSus](https://mugisus.com)
+### Hi there! 👋
 
-I am MugiSus. 
+MugiSus here.
