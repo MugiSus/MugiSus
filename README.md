@@ -2,6 +2,6 @@
 
 ### 👋 Hi there!
 
-MugiSus here. **[_MugiSus.com_](https://mugisus.me)**
+MugiSus here. **[_MugiSus.me_](https://mugisus.me)**
 
 </div>
